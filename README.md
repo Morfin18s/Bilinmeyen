@@ -1,0 +1,2 @@
+# Bilinmeyen
+Dene.e
